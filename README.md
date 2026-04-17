@@ -1,1 +1,1 @@
-https://sofiiik562.github.io/zakrivayuschiy-teg-ad/
+https://github.com/SOFIIIK562/zakrivayuschiy-teg-ad
